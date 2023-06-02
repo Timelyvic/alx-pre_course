@@ -1,2 +1,2 @@
-glory Man United
+Manchester United
 
